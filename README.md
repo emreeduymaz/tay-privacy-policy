@@ -1,1 +1,0 @@
-# tay-privacy-policy
